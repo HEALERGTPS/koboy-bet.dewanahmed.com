@@ -1,1 +1,1 @@
-# koboybet.dewanahmed.com
+# koboy-bet.dewanahmed.com
